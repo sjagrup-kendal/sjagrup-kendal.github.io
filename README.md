@@ -1,2 +1,2 @@
 # sjagrup-kendal.github.io
-Website Resmi SJA Grup Kendal
+Website Resmi ISJA - Ilyas Satria Jaya Abadi 
